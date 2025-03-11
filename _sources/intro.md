@@ -1,2 +1,2 @@
-## selamat Datang Di Matakuliah KAl
+## Selamat Datang Di Matakuliah KAl
 
